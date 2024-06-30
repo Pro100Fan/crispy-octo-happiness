@@ -1,0 +1,5 @@
+[Vivaldi backup key.txt](https://github.com/user-attachments/files/16044088/Vivaldi.backup.key.txt)
+![Screenshot_2024-06-30-11-30-53-466_com miui home](https://github.com/Pro100Fan/crispy-octo-happiness/assets/172863061/05f968ee-86c4-4ee3-9577-2b24957de5a6)
+[DrWeb_Log.txt](https://github.com/user-attachments/files/16044093/DrWeb_Log.txt)
+[Vivaldi backup key (1).txt](https://github.com/user-attachments/files/16044092/Vivaldi.backup.key.1.txt)
+[Vivaldi backup key.txt](https://github.com/user-attachments/files/16044091/Vivaldi.backup.key.txt)
